@@ -6,4 +6,4 @@ Nicole - EA
 
 Mark - Head of People
 
-LeANa - EA
+Leona - EA
